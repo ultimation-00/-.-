@@ -1,12 +1,11 @@
 
-ʜᴇ/ʜɪᴍ
+ʜᴇ/ʜɪm
 
+People who have a passion for visual novels, mangas, documentary videos, minecraft youtubers and animes (Specifically JJBA, JJK, TOKYO GHOUL, BLUE LOCK) interact, but also those who want to introduce other things and just wanna have a friend, don't hesitate man 👍
 
-People who watch Minecraft youtubers, certain people like GroxMC,Froggydude, SlipperyHC, Lookout3D, ThatMob, Whispy, and Twixxel INT, all others and fandoms are also included. ( JJK, JJBA, Tokyo Ghoul, Blue Lock specifically.)
+THOSE WHO ARE UNDER THE AGE OF 16, 15, DNI PLEASE
 
-
-
-You can call me Ender, or Weep. My name is still being considered too.
+Ultimation
 
 
 
