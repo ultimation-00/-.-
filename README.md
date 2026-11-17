@@ -1,11 +1,1 @@
-🖤  open strawpage 
-
-
-
-
-
-
-
-
-<img width="2048" height="2048" alt="1000004093" src="https://github.com/user-attachments/assets/6b0b05db-9432-4076-b335-10dce5848b1e" />
-
+[![Typing SVG](https://readme-typing-svg.demolab.com?font=Redaction+50&pause=1000&color=381A36DD&width=435&lines=Must+it+be+violent%3F)](https://git.io/typing-svg)
